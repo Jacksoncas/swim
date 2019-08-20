@@ -6,4 +6,4 @@ We are fully aware of the importance of privacy to you and will do our best to p
 
 If you have any questions, you can leave a message below or contact us in the following way.
 
-Technical support: bef273474834@qq.com
+Technical support: 125362548@hotmail.com
